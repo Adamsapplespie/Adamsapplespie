@@ -1,4 +1,4 @@
-### Howdy gamers 👋
+### Howdy gamers 🚣‍♂️
 
 <!--
 **Adamsapplespie/Adamsapplespie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
